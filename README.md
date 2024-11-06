@@ -1,4 +1,4 @@
-👋🏻 prazer!, Me chamo Heliabe e tenho 15 anos.
+👋🏻 prazer! Me chamo Heliabe e tenho 15 anos.
 
 - moro na cidade de Curitiba no bairro Umbará 📌
 - atualmente me encontro no 1° ano do ensino médio, estudando linguagens. 💭
