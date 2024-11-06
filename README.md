@@ -7,5 +7,5 @@
 - trabalho em um bike shop e oficina especializada em bicicletas 🔧 [wega´s bike] (https://www.wegasbike.com.br) 🚲
 - sou evangélico e frequento a Congregação Cristã no Brasil 🙏🏽
 - pretendo fazer faculdade na área de Psicologia 🧠
-- obrigado pela atenção!
+- obrigado pela atenção!🐒
 
